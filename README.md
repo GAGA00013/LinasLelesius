@@ -1,7 +1,7 @@
 # Linas Lelesius
 This is where the magic happens. These pictures are lowkey hot.
 LINAS LELESIUS PORN DICK BALLS yes.
-shout out to paulius andruliavicius, MAYBACHAS and aydan kumas
+shout out to paulius andruliavicius, MAYBACHAS the shit eater and aydan kumas my favorite turk
 
 
 
