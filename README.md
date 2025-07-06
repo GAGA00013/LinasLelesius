@@ -1,7 +1,7 @@
 # Linas Lelesius
-This is where the magic happens. These pictures are lowkey hot
-LINAS LELESIUS PORN DICK BALLS
-shout out to povilas lelesius and aydan kumas
+This is where the magic happens. These pictures are lowkey hot.
+LINAS LELESIUS PORN DICK BALLS yes.
+shout out to paulius andruliavicius, MAYBACHAS and aydan kumas
 
 
 
